@@ -8,7 +8,9 @@
 
 ## What I like doing in my free time
   I enjoy reading visual novels (VNs), working on school projects, or studying!!!
+  
 ---------------------------------------------------------------------------------------------
+
 # こんにちは 👋
 
 ## 私について
