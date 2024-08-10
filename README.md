@@ -1,7 +1,7 @@
 # Hi there 👋
 
 ## Who I am
-  My name is Brody Nikolaos 😄
+  My name is Brody Nikolaos (Nichols) 😄
 
 ## Current Ocupation
   Currently, I am at Turing 📫, while also working on C++ in my free time!
